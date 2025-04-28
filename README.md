@@ -1,3 +1,49 @@
+HW 27.03:
+
+![image](https://github.com/user-attachments/assets/5e910c45-15a0-4158-a273-ec45b9cc370d)
+
+
+
+
+HW 14.03, 21.03:
+
+![image](https://github.com/user-attachments/assets/d940b7a5-f0a4-40ed-b173-09e2cef3904f)
+
+
+
+
+HW 13.03:
+
+![image](https://github.com/user-attachments/assets/0d287a67-e3e6-4517-9863-1aca2e957bc5)
+
+
+
+
+
+
+HW 07.03:
+
+
+
+https://github.com/user-attachments/assets/28c56cfa-bf33-46d7-9f2a-027fc4d39c37
+
+
+
+
+
+
+HW 27.02-28.02:
+
+
+
+https://github.com/user-attachments/assets/612d8f75-20ca-4758-acbf-6c10b4b2ca21
+
+
+
+
+
+
+
 HW 21.02:
 
 ![image](https://github.com/user-attachments/assets/94d79acc-2081-444e-a16e-270eae272779)
